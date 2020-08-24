@@ -1,2 +1,0 @@
-# Ngehek
-Smile0007
